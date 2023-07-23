@@ -1,4 +1,4 @@
 # Education
 
-- Kiev Polytechnic Institute
+- Sumy State University
 - Metarhia free educational program
